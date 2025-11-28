@@ -1,4 +1,7 @@
-i will make thiss again later.. :P
+<div align="center">
+  
+![](https://komarev.com/ghpvc/?username=AD0KOU&color=f7c9cf&base=1000&label=wonderhoy!.o(≧∀≦)o)
 
-
-![20251017_022605](https://github.com/user-attachments/assets/e7d7918c-5716-404d-b4a6-eea7f7eda14a)
+ <img width="400" height="900" src="https://files.catbox.moe/9qi8qe.gif">
+ 
+[<img width="280" height="900" src="https://files.catbox.moe/wszzwe.webp">](https://porcellaindolly.straw.page/)[<img width="280" height="900" src="https://files.catbox.moe/8b3t91.webp">](https://porcellaindolly.atabook.org/)[<img width="280" height="900" src="https://files.catbox.moe/vuzpna.webp">](https://rentry.co/PorcellainDolly)
