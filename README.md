@@ -11,8 +11,8 @@
  <img width="800" height="2000" src="https://files.catbox.moe/9t2vvn.webp">
 <p align="center">
 $\color{#edb1d5}{\text{w2i prefㅤㅤ♡ㅤㅤc + h is k ㅤㅤ♡ㅤㅤfeel free to int if we share same interests n fandoms}}$ <img width="90" height="900" src="https://files.catbox.moe/k3fdn1.webp">
-$\color{#edb1d5}{\text{i have social aniexity and tdah , i am super shy adn akward and i can be very nervous at talking so plz be nice :3 }}$
+$\color{#edb1d5}{\text{i have social aniexity and tdah , i am super shy adn akward and i can be very nervous at talking so plz be nice :3}}$
   
 # $\color{#edb1d5}{\text{fandoms/hyperfixations!}}$ <img width="100" height="900" src="https://files.catbox.moe/e5o4ul.gif">
 
-$\color{#edb1d5}{\text{danganronpaㅤㅤ♡ㅤㅤyour turn to dieㅤㅤ♡ㅤㅤmadoka magicaㅤㅤ♡ㅤㅤkevin spencerㅤㅤ♡ㅤㅤproject sekaiㅤㅤ♡ㅤㅤmoral orelㅤㅤ♡ㅤㅤcookie run kingdoomㅤㅤ♡ㅤㅤand more, but those are mostly main interests <3}}$
+$\color{#edb1d5}{\text{danganronpa ♡ your turn to die ♡ madoka magica ♡ kevin spencer ♡ project sekai ♡ moral orel ♡ cookie run kingdoom ♡ and more,but those are mostly main interests}}$
