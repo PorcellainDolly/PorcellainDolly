@@ -22,4 +22,7 @@ $\small\textcolor{#c1c7f5}{\textsf{୨ৎㅤㅤㅤㅤEmu  ֶָ֢   Yuiㅤㅤ੭ 
      
 $\small\textcolor{#c1c7f5}{\textsf{BEFORE YOU INTERACT}}$ 
 
+𝜗ৎ ── I am very shy and extremly sensitivy, i am not a good talker at first and i am a very anixious person :"3, i have TDAH (ADHD), i can ragequit games when i get bored, i sometimes respond slow, and i attend to sometimes have aniexity attacks or panic attacks @_q
+𝜗ৎ ── Aslo my first languaje is NOT english, so plz dont make fun of me if i misspell somentigh :"D, my small hobbies are drawing, listening to music, write poems or sometimes OC ideas, sleep, and sometimes painting ^_^!, on pontown i mostly stay afk or offtab since i got bored, aslo my internet is BAD so i'm so sorry if dont answer somentigh or a interaction! (i aslo get kicked many times by my signal lol)
+
 remaking social yeeyyeyeyeyye :3 
