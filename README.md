@@ -26,4 +26,8 @@ $\small\textcolor{#c1c7f5}{\textsf{BEFORE YOU INTERACT}}$
 
 𝜗ৎ ── Aslo my first languaje is NOT english, so plz dont make fun of me if i misspell somentigh :"D, my small hobbies are drawing, listening to music, write poems or sometimes OC ideas, sleep, and sometimes painting ^_^!, on pontown i mostly stay afk or offtab since i got bored, aslo my internet is BAD so i'm so sorry if dont answer somentigh or a interaction! (i aslo get kicked many times by my signal lol)
 
+<div align="center">
+
+<img src="https://files.catbox.moe/t3co1i.webp" width="40%"/>
+
 remaking social yeeyyeyeyeyye :3 
