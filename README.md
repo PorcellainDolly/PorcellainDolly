@@ -28,6 +28,6 @@ $\small\textcolor{#c1c7f5}{\textsf{BEFORE YOU INTERACT}}$
 
 <div align="center">
 
-<img src="https://files.catbox.moe/t3co1i.webp" width="40%"/>
+<img src="https://files.catbox.moe/t3co1i.webp" width="10%"/>
 
 remaking social yeeyyeyeyeyye :3 
