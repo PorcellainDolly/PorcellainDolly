@@ -38,7 +38,7 @@ $\small\textcolor{#c1c7f5}{\textsf{SOCIALS}}$
 
 <div align="center">
 
-✦ [Strawpage](https://porcellaindolly.straw.page/)ㅤㅤ.ㅤㅤ[Atabook](https://porcellaindolly.atabook.org/)ㅤㅤ.ㅤㅤ[Rentry](https://rentry.co/PorcellainDolly)ㅤㅤ.ㅤㅤ[pronoums.page](https://pronouns.cc/@SunshineIsHere)ㅤㅤ.ㅤㅤ[Twitter](https://x.com/porcellaind0lly)ㅤㅤ.ㅤㅤ[Tiktok](https://www.tiktok.com/@theporcellaindolly) ✦
+✦ [Strawpage](https://porcellaindolly.straw.page/)ㅤㅤ.ㅤㅤ[Atabook](https://porcellaindolly.atabook.org/)ㅤㅤ.ㅤㅤ[Rentry](https://rentry.co/PorcellainDolly)ㅤㅤ.ㅤㅤ[pronoums.cc](https://pronouns.cc/@PorcellainDolly)ㅤㅤ.ㅤㅤ[Twitter](https://x.com/porcellaind0lly)ㅤㅤ.ㅤㅤ[Tiktok](https://www.tiktok.com/@theporcellaindolly) ✦
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=A9B7D6&vCenter=true&multiline=true&repeat=false&width=435&lines=+"thanks+for+your+attention";+"♡")](https://git.io/typing-svg)  
