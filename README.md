@@ -6,7 +6,7 @@
   
 ![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=fbd6bd&base=1000&label=DOLLYS)
 
-$\small\textcolor{#fbd6bd}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤEmu  ֶָ֢   Yuiㅤㅤ੭﹕﹒  ㅤㅤ年  17 y/o ⑅  ㅤㅤbabylolita ૮ ◞ ﻌ ◟ ა Ი𐑼 ㅤ ㅤINFP ♡ ISFJ  ㅤ ㅤ◞}}$
+$\small\textcolor{#fbd6bd}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤyui ֶָ֢   madoka irlㅤㅤ੭﹕﹒  ㅤㅤ年  17 y/o ⑅  ㅤㅤbabylolita/shoujo girl ૮ ◞ ﻌ ◟ ა Ი𐑼 ㅤ ㅤINFP ♡ ISFJ  ㅤ ㅤ◞}}$
 
 <img src= https://github.com/user-attachments/assets/e3a9c8f8-2c95-4e73-b47e-ddfefb35e485 width="100%"/>
 
