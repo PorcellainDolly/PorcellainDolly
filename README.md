@@ -1,16 +1,17 @@
 <div align="center">
   
-<img src= https://github.com/user-attachments/assets/233575d7-493a-4e15-9f5f-943a31222fbe width="100%"/>
-<img src= https://github.com/user-attachments/assets/e00cb4e0-da8f-4122-b0fa-e094752d7a2b width="100%"/>
+<img src= https://github.com/user-attachments/assets/3792268b-74a4-46f5-83e4-3f38327d9720 width="100%"/>
+<img src= https://github.com/user-attachments/assets/e1daa15b-44b6-483c-ad6e-8ec9720e17ba width="100%"/>
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=fbd6bd&base=1000&label=DOLLYS)
+![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=a6799a&base=1000&label=DOLLYS)
 
-$\small\textcolor{#fbd6bd}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤyui ֶָ֢   madoka irlㅤㅤ੭﹕﹒  ㅤㅤ年  17 y/o ⑅  ㅤㅤbabylolita/shoujo girl ૮ ◞ ﻌ ◟ ა Ი𐑼 ㅤ ㅤINFP ♡ ISFJ  ㅤ ㅤ◞}}$
+$\small\textcolor{#ffcad1}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤyui ֶָ֢   madoka irlㅤㅤ੭﹕﹒  ㅤㅤ年  17 y/o ⑅  ㅤㅤbabylolita/shoujo girl ૮ ◞ ﻌ ◟ ა Ი𐑼 ㅤ ㅤINFP ♡ ISFJ  ㅤ ㅤ◞}}$
 
-<img src= https://github.com/user-attachments/assets/e3a9c8f8-2c95-4e73-b47e-ddfefb35e485 width="100%"/>
+<img src= https://github.com/user-attachments/assets/877efb3c-63f0-465b-895c-3cb7202284ec
+ width="100%"/>
 
 ♡ㅤㅤㅤ[strawpage](https://porcellaindolly.straw.page/)ㅤㅤㅤ.ㅤㅤㅤ[rentry](https://rentry.co/PorcellainDolly)ㅤㅤㅤ.ㅤㅤㅤ[atabook](https://porcellaindolly.atabook.org)ㅤㅤㅤ♡
 
-<img src= https://github.com/user-attachments/assets/10e29f0f-365b-4ffa-b362-b670216805f3 width="100%"/>
-<img src= https://github.com/user-attachments/assets/109dd888-8ed0-4cb3-8fb3-ed3025ff071a width="100%"/>
+<img src= https://github.com/user-attachments/assets/421a916a-2818-48c2-877f-1cdbf2855d5b width="100%"/>
+<img src= https://github.com/user-attachments/assets/7cad531e-9267-46f6-b86f-412fd5324d6a width="100%"/>
