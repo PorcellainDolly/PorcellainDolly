@@ -4,7 +4,7 @@
 
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=A9B7D6&vCenter=true&multiline=true&repeat=false&width=435&lines=+"become+the+best+of+you!!+<3")](https://git.io/typing-svg)  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=FFCCDC&vCenter=true&multiline=true&repeat=false&width=435&lines=+"become+the+best+of+you!!+<3")](https://git.io/typing-svg)  
 
 
 <div align="center">
