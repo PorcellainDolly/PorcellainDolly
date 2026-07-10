@@ -1,7 +1,12 @@
 <div align="center">
   
 <img src= https://github.com/user-attachments/assets/35539cec-5b5f-43ff-9178-0e5bb89e6762 width="100%"/>
-<img src= https://github.com/user-attachments/assets/e1daa15b-44b6-483c-ad6e-8ec9720e17ba width="100%"/>
+
+<div align="center">
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=A9B7D6&vCenter=true&multiline=true&repeat=false&width=435&lines=+"become+the+best+of+you!!+<3")](https://git.io/typing-svg)  
+
+
 <div align="center">
   
 ![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=a6799a&base=1000&label=DOLLYS)
