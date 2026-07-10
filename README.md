@@ -4,12 +4,12 @@
 
 <div align="center">
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=FFCCDC&vCenter=true&multiline=true&repeat=false&width=435&lines=+"become+the+best+of+you!!+<3")](https://git.io/typing-svg)  
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=FFCCDC&vCenter=true&multiline=true&repeat=false&width=435&lines=+"the+happines+you+seek?";+"only+i+can+grant+it+<3.")](https://git.io/typing-svg)    
 
 
 <div align="center">
   
-![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=a6799a&base=1000&label=DOLLYS)
+![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=FFA9BF&base=1000&label=♡)
 
 $\small\textcolor{#ffcad1}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤyui ֶָ֢   madoka irlㅤㅤ੭﹕﹒  ㅤㅤ年  17 y/o ⑅  ㅤㅤbabylolita/shoujo girl ૮ ◞ ﻌ ◟ ა Ი𐑼 ㅤ ㅤINFP ♡ ISFJ  ㅤ ㅤ◞}}$
 
@@ -21,4 +21,4 @@ $\small\textcolor{#ffcad1}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤyui ֶָ֢   mad
 <img src= https://github.com/user-attachments/assets/421a916a-2818-48c2-877f-1cdbf2855d5b width="100%"/>
 <img src= https://github.com/user-attachments/assets/7cad531e-9267-46f6-b86f-412fd5324d6a width="100%"/>
 
-https://github.com/user-attachments/assets/35539cec-5b5f-43ff-9178-0e5bb89e6762
+
