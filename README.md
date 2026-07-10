@@ -3,22 +3,15 @@
 <img src= https://github.com/user-attachments/assets/35539cec-5b5f-43ff-9178-0e5bb89e6762 width="100%"/>
 
 <div align="center">
-  
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=FFCCDC&vCenter=true&multiline=true&repeat=false&width=435&lines=+"the+happines+you+seek?";+"only+i+can+grant+it+<3.")](https://git.io/typing-svg)    
 
+<img src= "https://github.com/user-attachments/assets/1c28ceda-10ac-4088-927e-f3a5dbc86650" width="18%"/>
 
-<div align="center">
-  
-![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=FFA9BF&base=1000&label=♡)
+  ![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=FFA9BF&base=1000&label=♡)
 
-$\small\textcolor{#ffcad1}{\textsf{𑣲ㅤㅤֺּׅ𓏽⑅ㅤㅤyui ֶָ֢   madoka irlㅤㅤ੭﹕﹒  ㅤㅤ年  17 y/o ⑅  ㅤㅤbabylolita/shoujo girl ૮ ◞ ﻌ ◟ ა Ი𐑼 ㅤ ㅤINFP ♡ ISFJ  ㅤ ㅤ◞}}$
-
-<img src= https://github.com/user-attachments/assets/877efb3c-63f0-465b-895c-3cb7202284ec
- width="100%"/>
+<img src= "https://github.com/user-attachments/assets/67228f58-ab54-415a-8a09-86e3de8c508c" width="100%"/>
 
 ♡ㅤㅤㅤ[strawpage](https://porcellaindolly.straw.page/)ㅤㅤㅤ.ㅤㅤㅤ[rentry](https://rentry.co/PorcellainDolly)ㅤㅤㅤ.ㅤㅤㅤ[atabook](https://porcellaindolly.atabook.org)ㅤㅤㅤ♡
 
-<img src= https://github.com/user-attachments/assets/421a916a-2818-48c2-877f-1cdbf2855d5b width="100%"/>
-<img src= https://github.com/user-attachments/assets/7cad531e-9267-46f6-b86f-412fd5324d6a width="100%"/>
+<img src= "https://github.com/user-attachments/assets/147cbc96-a9c4-41f7-92b5-831997792d99" width="16%"/>  <img src= "https://github.com/user-attachments/assets/fa072df3-8363-458b-b251-279a0a1b632a" width="30%"/>  <img src= "https://github.com/user-attachments/assets/07a82a40-f658-4872-a37b-f6d96238a11f" width="16%"/> 
 
-
+<img src= "https://github.com/user-attachments/assets/47a0bbb3-ecb8-4423-ad2f-169f143aa562" width="100%"/>
