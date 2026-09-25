@@ -12,6 +12,8 @@
 
 <img src= "https://github.com/user-attachments/assets/c4d6cd3f-2c2c-4fbf-8bea-8435be11839e" width="100%"/>
 
-<img src= "https://github.com/user-attachments/assets/6c2119a6-a564-4ff9-bbbe-4f2a09fbafcb" width="20%"/>
+<img src= "https://github.com/user-attachments/assets/6c67aee2-2f5b-4d5b-9b7c-bc0f7b6db0b4" width="100%"/>
 
-MY BABYS <3
+<img src= "https://github.com/user-attachments/assets/6c2119a6-a564-4ff9-bbbe-4f2a09fbafcb" width="30%"/>
+
+“ うちの赤ちゃんの ” <3
