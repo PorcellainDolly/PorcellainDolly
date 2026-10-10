@@ -2,9 +2,9 @@
 
 ︵︵︵ ๑ ♡ ๑ ︵︵︵
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=A9B7D6&vCenter=true&multiline=true&repeat=false&width=435&lines=+"it's+10pm!";+"do+you+know+where+your+children's+are?")](https://git.io/typing-svg) 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&size=16&duration=2000&pause=10&color=A9B7D6&vCenter=true&multiline=true&repeat=false&width=435&lines=+"it's+10pm!";+"do+you+know+where+your+children's+are?")](https://git.io/typing-svg)
 
-![](https://files.catbox.moe/3o5rci.gif) ![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=626BB0&base=1000&label=DOLLYS) 
+![](https://komarev.com/ghpvc/?username=PorcellainDolly&color=626BB0&base=1000&label=DOLLYS) 
 
 <img src= "https://github.com/user-attachments/assets/ef33d181-83db-4803-8e03-06c79bd43b28" width="100%"/>
 
