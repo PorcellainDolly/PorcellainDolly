@@ -19,7 +19,7 @@
 
 <img src= "https://github.com/user-attachments/assets/898a405b-50b0-42a5-998b-32218785c431" width="100%"/>
 
-✦ [Strawpage](https://porcellaindolly.straw.page/)ㅤㅤ.ㅤㅤ[Atabook](https://porcellaindolly.atabook.org/)ㅤㅤ.ㅤㅤ[Rentry](https://rentry.co/PorcellainDolly)ㅤㅤ.ㅤㅤ[pronoums.cc](https://pronouns.cc/@PorcellainDolly)ㅤㅤ.ㅤㅤ[Carrd](https://x.com/porcellaind0lly)ㅤㅤ.ㅤㅤ[Spacehey](https://www.tiktok.com/@theporcellaindolly) ✦
+✦ [Strawpage](https://porcellaindolly.straw.page/)ㅤㅤ.ㅤㅤ[Atabook](https://porcellaindolly.atabook.org/)ㅤㅤ.ㅤㅤ[Rentry](https://rentry.co/PorcellainDolly)ㅤㅤ.ㅤㅤ[pronoums.cc](https://pronouns.cc/@PorcellainDolly)ㅤㅤ.ㅤㅤ[Carrd](https://porcellaindolly.carrd.co/#)ㅤㅤ.ㅤㅤ[Spacehey](https://spacehey.com/porcellaindolly) ✦
 
 
 <img src= "https://github.com/user-attachments/assets/828cb2a6-e7f5-44df-9d54-6711f5095449" width="100%"/>
